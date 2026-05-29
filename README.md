@@ -4,7 +4,7 @@
 ****If you use the Source Code, please make sure to credit and backlink to [Azhar Rivaldi](https://rivaldi48.blogspot.com/)***
 
 ## 👇 Click For Support Me :
-<a href="https://sociabuzz.com/azharrvldi_/donate](https://www.linkedin.com/in/muhamad-ropik/)"> 
+<a href="(https://www.linkedin.com/in/muhamad-ropik/)"> 
 <img src="[https://github.com/AzharRivaldi/AzharRivaldi/blob/master/Support%20Here.png](https://static.vecteezy.com/system/resources/thumbnails/012/871/548/small/click-here-button-in-yellow-colors-with-pointer-clicking-click-here-web-button-illustration-png.png)" width="200" height="200"></a>
 
 ## 📄 License
